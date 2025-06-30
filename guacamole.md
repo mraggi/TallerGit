@@ -2,7 +2,8 @@
 
 ## Ingredientes
 * Aguacate
-* Limón
+* Lima
 * Sal
+* cebolla
 
 ## Instrucciones
